@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @sarthakmaao
 - 👀 I’m interested in cosmology and high energy physics 
-- 🌱 I’m currently completed my BSc Physics program
+- 🌱 currently completed my BSc Physics program
 - 💞️ I’m looking to collaborate on astrophysics based programs
 - 📫 How to reach me sarthakrambade95@gmail.com
 - 😄 Pronouns: he/him
